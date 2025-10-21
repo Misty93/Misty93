@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Misty93
-- 🌱 I’m currently on a college for information tehnologies in Zagreb, Croatia...
+- bacc.ing.techn.inf.
+- Cyber Security Consultant
 - 💞️ Still learning
-- 📫 lemilisa@vsite.hr...
-
+- 📫 info@cybercroatia.org
